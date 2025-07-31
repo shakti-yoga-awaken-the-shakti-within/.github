@@ -1,1 +1,3 @@
-# .github
+# *Shakti Yoga: Awaken the Shakti Within!*
+## *Uncover 15 rare, surprising facts about Shakti Yoga that awaken your inner divine power. Discover hidden truths that most people don’t know! You are the vessel of cosmic power. Let Shakti Yoga awaken your purpose, healing, and divinity.* [More details…](https://spiritualkhazaana.com/web-stories/shakti-yoga-awaken-the-shakti-within/)
+## #ShaktiYoga #DivineFeminine #kundaliniAwakening #SpiritualYoga #ChakraHealing #AncientYogaTraditions #InnerGoddess #TantraYoga #EnergyHealing #FemininePower #divinefeminineenergy #spiritualempowerment #innerstrength #femininepower #yogapractice #spiritualawakening #selflove #intuition #meditation
